@@ -1,0 +1,1 @@
+This week will focus on comparing commercial airline accident involving Boeing and Airbus aircraft
